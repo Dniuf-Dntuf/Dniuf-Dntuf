@@ -29,6 +29,6 @@ sɪɴᴄᴇ ᴡʜᴇɴ ᴅɪᴅ ɪ ɢᴇᴛ ʟɪᴋᴇ ᴛʜɪs?
 ᴘᴀʀᴛs ᴏғ ᴍʏ ʙʀᴀɪɴ ᴀʀᴇ ᴀʟʀᴇᴀᴅʏ ᴄᴏʀʀᴜᴘᴛᴇᴅ
 ᴍᴇᴍᴏʀɪᴇs ᴀʀᴇ ʟᴏɴɢ ɢᴏɴᴇ, ғɪʟᴇs ɪɴ ᴛʜᴇ ᴛʀᴀsʜ ʙɪɴ
 <img width="851" height="52" alt="image" src="https://github.com/user-attachments/assets/73d22ef9-14d5-4fb8-957a-08569351edd1" />
-https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Ffemtanyl.fandom.com%2Fwiki%2FFemtanyl_Wiki&ved=0CBYQjRxqFwoTCNjJkOrRmpIDFQAAAAAdAAAAABAH&opi=89978449<img width="400" height="293" alt="image" src="https://github.com/user-attachments/assets/1c290aa5-c701-47d3-b0c8-b5240fc80de0" />
+
 
 

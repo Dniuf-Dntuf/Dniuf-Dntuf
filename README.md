@@ -18,6 +18,7 @@
 ʙʟᴏᴏᴅ ʙᴇʜɪɴᴅ ᴍʏ ᴇʏᴇs ᴡʜᴇɴ ɪ ᴛʀʏ ᴛᴏ sʟᴇᴇᴘ ᴀᴛ ɴɪɢʜᴛ
 ɢᴏɪɴɢ ᴍɪssɪɴɢ ᴡʜᴇɴ ᴍʏ ᴍɪɴᴅ
 ᴛᴜʀɴs ᴏᴜᴛ ᴛʜᴇ ʟɪɢʜᴛs
-![3765080B-5A44-4B88-ADC8-6BE0BA9A3FBC](https://github.com/user-attachments/assets/8ee19379-edb4-4682-815c-6c53f590a2d9)
+![B082A7FA-C99C-497C-B746-3BC641E870DB_4_5005_c](https://github.com/user-attachments/assets/7f85c27b-f765-4829-88a7-ccb6f9654241)
+
 
 

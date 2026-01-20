@@ -29,3 +29,6 @@ sɪɴᴄᴇ ᴡʜᴇɴ ᴅɪᴅ ɪ ɢᴇᴛ ʟɪᴋᴇ ᴛʜɪs?
 ᴘᴀʀᴛs ᴏғ ᴍʏ ʙʀᴀɪɴ ᴀʀᴇ ᴀʟʀᴇᴀᴅʏ ᴄᴏʀʀᴜᴘᴛᴇᴅ
 ᴍᴇᴍᴏʀɪᴇs ᴀʀᴇ ʟᴏɴɢ ɢᴏɴᴇ, ғɪʟᴇs ɪɴ ᴛʜᴇ ᴛʀᴀsʜ ʙɪɴ
 <img width="851" height="52" alt="image" src="https://github.com/user-attachments/assets/73d22ef9-14d5-4fb8-957a-08569351edd1" />
+
+https://media.tenor.com/cE2RgmRKyfMAAAAi/anatomical-heart-beating-heart.gif<img width="98" height="120" alt="image" src="https://github.com/user-attachments/assets/db059fa2-8a52-415d-8050-dc4fcf4ba215" />
+

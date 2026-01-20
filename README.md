@@ -1,16 +1,16 @@
-## Hi there 👋
+# ᴏʜ, ɪᴛ's ᴇᴀsʏ, ɪ ʟᴏsᴛ ᴛᴏ ᴛɪᴍᴇ
+ɢᴏᴛ ᴀ ғᴇᴠᴇʀ ᴏғ ᴀ ʜᴜɴᴅʀᴇᴅ ᴀɴᴅ ɪ'ᴍ ғᴇᴇʟɪɴɢ ᴀʟʀɪɢʜᴛ
+ᴍᴀᴅᴇ ɪᴛ ᴏᴜᴛᴛᴀ ʟɪғᴇ ɪɴ ᴘʀɪsᴏɴ ᴡɪᴛʜᴏᴜᴛ ᴇᴠᴇɴ ᴀ ғɪɴᴇ
+ᴍᴀᴅᴇ ɪᴛ ᴏᴜᴛ ᴡɪᴛʜ ɴᴏ ᴄᴏɴᴠɪᴄᴛɪᴏɴs, ɪ ʟɪᴋᴇ ᴛᴏ ʙᴇ ʙʀɪɢʜᴛ
+ɪ-ɪ-ɪ-ɪ-ɪ ᴡɪʟʟ ғɪɴᴅ ʏᴏᴜ ɪɴ ᴛʜᴇ ɴɪɢʜᴛʟɪғᴇ
+ɪ-ɪ-ɪ ᴡɪʟʟ ᴋɪʟʟ ʏᴏᴜ ɪɴ ᴍʏ ɴᴇxᴛ ʟɪғᴇ
+ɪ-ɪ sᴇʟʟ ᴛʜᴇ ᴀʟʟ ɴᴇᴡ ɴɪɴᴇ ᴛᴏ ғɪᴠᴇ -ɪ-ɪ-ɪ-ɪᴠᴇ
+ʏᴏᴜ sᴛᴏʟᴇ ᴊᴜsᴛ ᴡʜᴀᴛ ɪ ɴᴇᴇᴅ
+ᴀᴛᴛᴀᴄᴋɪɴɢ ᴠᴇʀᴛɪᴄᴀʟ
+ɪ ɢɪᴠᴇ ᴘᴇʀᴍɪssɪᴏɴ ғᴏʀ ᴛʜᴇ ʀɪɢʜᴛ ᴘʀɪᴄᴇ
+ɪ'ᴍ ᴏɴ ᴀ ᴍɪssɪᴏɴ, ɢᴏɴɴᴀ ᴀᴄᴛ ʀɪɢʜᴛ -ʀɪɢʜᴛ -ʀɪɢʜᴛ
+ᴍᴀᴋе ɴᴏ ᴅᴇᴄɪsɪᴏɴ ᴘᴇʀ ᴛʜᴇ ᴅеᴀᴅʟɪɴᴇ
+ʏᴏᴜ ɢᴏᴛ ᴀ ᴠᴀʟɪᴅ ғɪɢʜᴛ
+ᴀᴛᴛᴀᴄᴋɪɴɢ ᴠᴇʀᴛɪᴄᴀʟ
+![C1749D7D-3347-42BE-8A88-41D711CD936C](https://github.com/user-attachments/assets/3e53c272-f0ad-43ef-8c68-fe396c63ee4a)
 
-<!--
-**Dniuf-Dntuf/Dniuf-Dntuf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->

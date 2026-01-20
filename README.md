@@ -20,12 +20,12 @@
 ᴛᴜʀɴs ᴏᴜᴛ ᴛʜᴇ ʟɪɢʜᴛs
 ![B082A7FA-C99C-497C-B746-3BC641E870DB_4_5005_c](https://github.com/user-attachments/assets/7f85c27b-f765-4829-88a7-ccb6f9654241)
 
-Metal frame to keep my circuitry from caving in
-My nerve endings spark and burn out underneath my skin
-Human error is the only thing I'll ever know
-Sharpening the blade to cut all the way to the bone
-Since when did I get like this?
-A shell of a being, a human malfunction
-Parts of my brain are already corrupted
-Memories are long gone, files in the trash bin
+ᴍᴇᴛᴀʟ ғʀᴀᴍᴇ ᴛᴏ ᴋᴇᴇᴘ ᴍʏ ᴄɪʀᴄᴜɪᴛʀʏ ғʀᴏᴍ ᴄᴀᴠɪɴɢ ɪɴ
+ᴍʏ ɴᴇʀᴠᴇ ᴇɴᴅɪɴɢs sᴘᴀʀᴋ ᴀɴᴅ ʙᴜʀɴ ᴏᴜᴛ ᴜɴᴅᴇʀɴᴇᴀᴛʜ ᴍʏ sᴋɪɴ
+ʜᴜᴍᴀɴ ᴇʀʀᴏʀ ɪs ᴛʜᴇ ᴏɴʟʏ ᴛʜɪɴɢ ɪ'ʟʟ ᴇᴠᴇʀ ᴋɴᴏᴡ
+sʜᴀʀᴘᴇɴɪɴɢ ᴛʜᴇ ʙʟᴀᴅᴇ ᴛᴏ ᴄᴜᴛ ᴀʟʟ ᴛʜᴇ ᴡᴀʏ ᴛᴏ ᴛʜᴇ ʙᴏɴᴇ
+sɪɴᴄᴇ ᴡʜᴇɴ ᴅɪᴅ ɪ ɢᴇᴛ ʟɪᴋᴇ ᴛʜɪs?
+ᴀ sʜᴇʟʟ ᴏғ ᴀ ʙᴇɪɴɢ, ᴀ ʜᴜᴍᴀɴ ᴍᴀʟғᴜɴᴄᴛɪᴏɴ
+ᴘᴀʀᴛs ᴏғ ᴍʏ ʙʀᴀɪɴ ᴀʀᴇ ᴀʟʀᴇᴀᴅʏ ᴄᴏʀʀᴜᴘᴛᴇᴅ
+ᴍᴇᴍᴏʀɪᴇs ᴀʀᴇ ʟᴏɴɢ ɢᴏɴᴇ, ғɪʟᴇs ɪɴ ᴛʜᴇ ᴛʀᴀsʜ ʙɪɴ
 <img width="851" height="52" alt="image" src="https://github.com/user-attachments/assets/73d22ef9-14d5-4fb8-957a-08569351edd1" />
